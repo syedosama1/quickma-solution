@@ -1,0 +1,1 @@
+# quickma-solution
